@@ -1,1 +1,1 @@
-Hi! I am Jiaxiao Shi, first year PhD in MARSLab Ntu.
+Hi! I am Jiaxiao Shi, first year PhD in MARS Lab Ntu.
